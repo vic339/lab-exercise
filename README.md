@@ -1,3 +1,5 @@
 # lab-exercise
-
-hahah ni ge wang ba dan 
+ 
+1 happy new year 
+2 but no break 
+3 cause me really unhappy
