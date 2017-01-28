@@ -1,6 +1,5 @@
 # lab-exercise
+ 
 
-hahah ni ge wang ba dan 
-
-
-yo yo yo
+2 but no break 
+3 cause me really unhappy
